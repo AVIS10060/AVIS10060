@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Intellidoc Ai based File Parser<br>🌱 I’m currently learning Deployement <br>💬 Contact me if you need any website , Webapp .
+🔭 Open to new opportunities.Ai based File Parser<br>🌱 I’m currently learning Deployement <br>💬 Contact me if you need any website , Webapp .
 
 
 ## 🌐 Socials:
